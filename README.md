@@ -1,2 +1,2 @@
 # code_avengers
-let me help i'm beginner
+i'm beginner help me
